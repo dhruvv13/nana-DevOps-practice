@@ -1,4 +1,4 @@
-learning with nana
+learning with nana!
 
 
 hello!
