@@ -3,7 +3,7 @@ learning with nana
 
 hello!
 
-practicing rebase concept!
+practicing rebase conceppt!
 
 practicing rebase from Nana Janashia!
 
